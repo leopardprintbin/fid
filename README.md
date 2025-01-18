@@ -1,2 +1,2 @@
 # This repo is for DIG2500 Fundementals of Interactive Design
-It will include three websites
+Putting more description 3 websites etc. ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
